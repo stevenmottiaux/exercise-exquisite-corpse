@@ -9,3 +9,5 @@ Déconcerté par la découverte, Rocky s'assoit enfin, fatigué et dépité. En 
 ### La Réalisation de Rocky
 
 Déconcerté par la découverte, Rocky s'assoit enfin, fatigué et dépité. En regardant autour de lui, il remarque une petite fissure dans un tuyau qu'il n'avait pas vue auparavant. Avec un effort renouvelé, il se faufile à travers l'ouverture et trouve un passage vers la liberté. Une fois dehors, il respire l'air frais et décide de ne plus jamais se laisser piéger par une illusion, promettant de rester fidèle à ses instincts. Rejoignant sa famille, Rocky raconte son aventure, et tous éclatent de rire en entendant comment une simple feuille de papier avait causé tant de tracas.
+
+Rocky, toujours curieux et aventurier, avait repéré une frite tombée près d'un réseau complexe de tuyaux. Sans hésiter, il s'était faufilé dans le labyrinthe de métal, certain qu'il pourrait récupérer son trésor. Cependant, à chaque tournant, il se retrouvait face aux mêmes araignées, et la sortie semblait toujours plus loin.
