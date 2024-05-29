@@ -1,1 +1,3 @@
 # Un raton bloqué dans une boucle ...
+
+Un raton laveur nommé Rocky se retrouve coincé dans une boucle de tuyaux en essayant de récupérer une frite tombée. Chaque fois qu'il pense avoir trouvé la sortie, il revient au point de départ, rencontrant les mêmes araignées perplexes à chaque tour. Finalement, après des heures de péripéties, il réalise que la frite était en fait une feuille de papier tout le temps!
